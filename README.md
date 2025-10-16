@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **hamidupwork34@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Upwork
+- 🔭 **I’m currently working on:** Upwork & As an Individual Freelancer
 - 🌱 **I’m currently learning:** AI Workflows & n8n
 - 👯 **I’m looking to collaborate on:** Projects of Mobile App
 - 💬 **Ask me about:** Collaboration, Tech Support
